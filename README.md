@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @farukhkhan07 or you can call me Khan.
+- 👋 Hi, I’m Farrukh.
 - 👀 I’m interested in coding and learning new modern technologies.
 - 🌱 I’m currently learning... Well, who isn't? 
 - 💞️ I’m looking to collaborate on any kind of project that makes me satisfy my hunger to learn. 
